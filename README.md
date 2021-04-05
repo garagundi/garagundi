@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @garagundi
+- 👀 I’m interested in data of health situation
+- 🌱 I’m currently learning a epidemiology master and colective health in the UASB-E
+- 💞️ I’m looking to collaborate on research about the public health of local situation 
+- 📫 can write me on gustavoaragundi@gmail.com
